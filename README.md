@@ -69,5 +69,4 @@ Here are some highlighted projects:
 
 ## 🤖 Fun Facts
 - 📚 Lifelong learner, always adding new skills to my toolkit  
-- ⚡ **Kdrama Enthusiast** (optional for personal touch)  
 - 😄 Pronouns: **She/Her**
